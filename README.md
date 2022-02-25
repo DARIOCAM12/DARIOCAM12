@@ -2,7 +2,7 @@
 
 Mi nombre es Ruben Dario, soy Ing.Comunicaciones y Electronica egresado del IPN, y un apasionado por la tecnologia y su constante evolucion.
 
-Nt: Hoy debes despertar y vivir una nueva vida, una vida llena de retos pero pero tambien de esperanza y de logros que todavia 
+Nt: Hoy debes despertar y vivir una nueva vida, una vida llena de retos pero tambien de esperanza y de logros que todavia 
 ayer no creias poder obtener.
 
 
